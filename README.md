@@ -1,0 +1,1 @@
+<div class="javascript"><img src = "https://imgs.search.brave.com/Y2pUTc4Wz80t4e7Dv_Py8rvOy3byl82M6oX0pW8rFCk/rs:fit:500:0:0/g:ce/aHR0cHM6Ly90My5m/dGNkbi5uZXQvanBn/LzA1LzgzLzYxLzY0/LzM2MF9GXzU4MzYx/NjQwM19FVXVuYXls/R1FhcTlRektyaWpN/NHhSSUdrcEFDWmRm/ZS5qcGc" /></div>
